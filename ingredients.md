@@ -5,8 +5,8 @@ Cumin seeds powder         1 tsp.
 Lemon juice                2 tsp.
 Salt to taste
 Wheat crackers             12 
-Oil for greaasing  
+Oil for greasing  
 Green chutney              6 tsp.
 Sweet chutney              12 tsp.
-Whisked freah curds        6 tsp.
+Whisked fresh curds        6 tsp.
 Chilli powder              14 tsp
